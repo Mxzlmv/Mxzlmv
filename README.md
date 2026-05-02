@@ -1,9 +1,13 @@
 [strawpage(⁠づ⁠｡⁠◕⁠‿⁠‿⁠◕⁠｡⁠)⁠づ](https://mzxmlv.straw.page)
+
 [atabook (⁠๑⁠•⁠﹏⁠•⁠)](https://mxzlmv.atabook.org)
+
 <p style="color: yellow;">We should make out Dio / Let's meet up heh</p>
 <p align="center">
+  
   ᰔ  Love you my dear .... 
-  <img src="https://ibb.co/6R0BGPfN" width="500"/>
+  
+  <img src="https://kommodo.ai/i/IscmFI071LoRQRHWADGA" width="500"/>
 </p>
 <img src="https://ibb.co/1JQPgv9b" width="100"/>
 ---
