@@ -7,9 +7,7 @@
   
   ᰔ  Love you my dear .... 
 
-  <p align="center">
-  <img src="https://raw.githubusercontent.com/your-username/repo-name/main/banner.png" width="100%"/>
-</p>
+  ![image](https://kommodo.ai/i/IscmFI071LoRQRHWADGA)
 
 <img src="https://ibb.co/1JQPgv9b" width="100"/>
 ---
