@@ -1,14 +1,16 @@
-[strawpage(⁠づ⁠｡⁠◕⁠‿⁠‿⁠◕⁠｡⁠)⁠づ](https://mzxmlv.straw.page)
+[strawpage(⁠づ⁠｡⁠◕⁠‿⁠‿⁠◕⁠｡⁠)⁠づ](https://mzxmlv.straw.page.org)
 
-         [atabook (⁠๑⁠•⁠﹏⁠•⁠)](https://mxzlmv.atabook.org)
+[atabook (⁠๑⁠•⁠﹏⁠•⁠)](https://mxzlmv.atabook.org)
 
 <p style="color: yellow;">We should make out Dio / Let's meet up heh</p>
 <p align="center">
   
   ᰔ  Love you my dear .... 
-  
-  <img src="https://kommodo.ai/i/IscmFI071LoRQRHWADGA" width="500"/>
+
+  <p align="center">
+  <img src="https://raw.githubusercontent.com/your-username/repo-name/main/banner.png" width="100%"/>
 </p>
+
 <img src="https://ibb.co/1JQPgv9b" width="100"/>
 ---
 
